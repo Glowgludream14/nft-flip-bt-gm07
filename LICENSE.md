@@ -1,4 +1,4 @@
-# 
+# professional bot de negociação NFT plugins é o melhor bot de negociação NFT plugins com compras em volume e transações proxy. Seguro, confiável e otimizado para estratégias de
 
 
 
